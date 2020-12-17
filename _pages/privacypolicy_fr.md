@@ -74,5 +74,5 @@ Je peux mettre à jour notre politique de confidentialité de temps à autre. Ai
 
 <br>
 
-Cette politique est en vigueur à partir du 2020-12-15
+Cette politique est en vigueur à partir du 15 décembre 2020.
 Si vous avez des questions ou des suggestions concernant ma politique de confidentialité, n'hésitez pas à me contacter à contact@kollyflicks.app.
